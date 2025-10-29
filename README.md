@@ -10,3 +10,4 @@ im closing all the repos except for like 3 i gotta super focus now this and i do
 
 i get a little stressed out working on this app bc u know it has to be perfect and everything, like im planning for the next few yrs and beyond in the personal statement, so i may not update this everyday bc im just thinking about my app and writing things down and ideas, and i dont want to share them bc i dunno who is out there and with what intentions, its very complicated, its not personal
 
+2 out of 3 letters are in as of an hr ago. so the 3rd writer is not responding ... YET it hasnt been a week so i get it, but they were responding to my emails over the summer and i see their github pushes as of yesterday soooo i gotta give it another week
