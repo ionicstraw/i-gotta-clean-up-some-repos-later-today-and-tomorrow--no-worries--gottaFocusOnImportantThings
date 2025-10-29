@@ -7,3 +7,6 @@ letters requested, i just need jim's work email so i asked him bc the app says i
 im closing all the repos except for like 3 i gotta super focus now this and i dont want evil eye i want things to happen smoothly
 
 1 out of 3 letters are in, im trying to push them all to submit them this week
+
+i get a little stressed out working on this app bc u know it has to be perfect and everything, like im planning for the next few yrs and beyond in the personal statement, so i may not update this everyday bc im just thinking about my app and writing things down and ideas, and i dont want to share them bc i dunno who is out there and with what intentions, its very complicated, its not personal
+
