@@ -15,3 +15,5 @@ i get a little stressed out working on this app bc u know it has to be perfect a
 i really have to work on my app so its not personal im not updating this, all of my thoughts are like ... what do i genuinely want to work on etc, i gotta do this for the next few weeks, its gotta be perfect THEN im free sorta
 
 https://www.tiktok.com/@kingme_imtee/video/7567052329699036446 yeah we have to pursue a restraining order against all 3 of those penn losers ... theres so much going on like i just want to figure out some things out, i keep saying this, its not personal, i really have to focus for the next couple of weeks on my personal statement, im not updating this everyday bc i feel like i have to really focus
+
+* show this tiktok to like a dean or something, they should know thats exactly what they were trying to do, that was the ultimate goal bc they're mentally ill
